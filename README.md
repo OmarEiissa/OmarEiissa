@@ -22,7 +22,7 @@ Feel free to reach out for collaboration or inquiries:
 - 📧 **Email:** [eissa0383@gmail.com](mailto:eissa0383@gmail.com)
 - 💼 **LinkedIn:** [Omar Eissa](https://www.linkedin.com/in/omar-eissa-8225b8336)
 - 🖥️ **GitHub:** [OmarEiissa](https://github.com/OmarEiissa)
-- 🌐 **Website** [Website](https://my-portfolio-chi-three-25.vercel.app/)  
+- 🌐 **Website:** [Omar Eissa](https://my-portfolio-chi-three-25.vercel.app/)  
 
 ---
 
@@ -68,7 +68,7 @@ I am available for freelance and full-time opportunities. Feel free to reach out
 - 📧 **Email:** [eissa0383@gmail.com](mailto:eissa0383@gmail.com)
 - 💼 **LinkedIn:** [Omar Eissa](https://www.linkedin.com/in/omar-eissa-8225b8336)
 - 🖥️ **GitHub:** [OmarEiissa](https://github.com/OmarEiissa)
-- 🌐 **Website** [Website](https://my-portfolio-chi-three-25.vercel.app/)  
+- 🌐 **Website:** [Omar Eissa](https://my-portfolio-chi-three-25.vercel.app/)  
 
 ---
 
